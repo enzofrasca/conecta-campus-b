@@ -1,3 +1,3 @@
 # conecta-campus-b
 
-![Demonstração](https://media.giphy.com/media/cRDa5XRubSNtqLQL6A/giphy.gif)
+![Demonstração](https://media.tenor.com/wWruaJh3wD4AAAAj/transparent-gif-spider.gif)
